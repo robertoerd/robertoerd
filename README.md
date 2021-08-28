@@ -1,8 +1,10 @@
 ## Hey, i'm Roberto. ✌🏽
 
-Enthusiastic about music, photography and the internet. I also like video games, retro stuff and helping people. I believe in the positive impact artificial intelligence can have on everyone's life.
+Enthusiastic about music, photography and the internet. Also like video games, retro stuff and helping people. 
 
-I love mixes and remixes.
+I believe in the positive impact artificial intelligence can have on everyone's life.
+
+Let's mix and remix.
 
 👁⚡🧠👹🍜
 
