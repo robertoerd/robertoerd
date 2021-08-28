@@ -4,8 +4,6 @@ Enthusiastic about music, photography and the internet. Also like video games, r
 
 I believe in the positive impact artificial intelligence can have on everyone's life.
 
-Let's mix and remix.
-
 👁⚡🧠👹🍜
 
 <!--
