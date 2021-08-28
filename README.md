@@ -1,6 +1,15 @@
-### Hi there 👋
+## Hey, i'm Roberto. ✌🏽
+
+Enthusiastic about music, photography and the internet. I also like video games, retro stuff and helping people. I believe in the positive impact artificial intelligence can have on everyone's life.
+
+I love mixes and remixes.
+
+👁⚡🧠👹🍜
 
 <!--
+
+### Hi there 👋
+
 **robertoerd/robertoerd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
