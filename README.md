@@ -1,10 +1,10 @@
 ## Hey, i'm Roberto. ✌🏽
 
-Enthusiastic about music, photography and the internet. Also like video games, retro stuff and helping people. 
+Enthusiastic about animation, cinema, video games, retro stuff, music, photography, A.I. and the internet.
 
-I believe in the positive impact artificial intelligence can have on everyone's life.
+I believe in the positive impact that sustainable and responsibly managed technology can have around the world.
 
-👁⚡🧠👹🍜
+👁⚡🧠⛩👹🍜
 
 <!--
 
