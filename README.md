@@ -1,4 +1,4 @@
-## Hey, i'm Roberto. ✌🏽
+## Hey, i'm Roberto.
 
 Enthusiastic about animation, cinema, video games, retro stuff, music, photography, A.I. and the internet.
 
