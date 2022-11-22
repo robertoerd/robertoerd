@@ -4,7 +4,7 @@ Enthusiastic about animation, cinema, video games, retro stuff, music, photograp
 
 I believe in the positive impact that sustainable and responsibly managed technology can have around the world.
 
-👁⚡🧠⛩👹
+👁⚡🧠⛩👹🎱
 
 <!--
 
