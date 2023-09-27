@@ -1,10 +1,10 @@
-## Hey, i'm Roberto.
+## Hey, my name is Roberto. 👋🏽
 
-Enthusiastic about animation, cinema, video games, retro stuff, music, photography, the internet and A.I.
+I'm passionate about animation, cinema, video games, the internet and A.I. 
 
-I believe in the positive impact that sustainable and responsibly managed technology can have around the world.
+I firmly believe in the beneficial effects that sustainable and responsibly managed technology can have worldwide.
 
-👁⚡🧠⛩👹🎱
+💾🌐🎲
 
 <!--
 
@@ -22,4 +22,13 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+
+Old one:
+
+Enthusiastic about animation, cinema, video games, retro stuff, music, photography, the internet and A.I.
+
+I believe in the positive impact that sustainable and responsibly managed technology can have around the world.
+
+👁⚡🧠⛩👹🎱
+
 -->
